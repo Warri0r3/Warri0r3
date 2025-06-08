@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on donkt know jet
 - 📫 How to reach me this come's later
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: long, long, long ago use to be admin
+- 
 
 <!---
 Warri0r3/Warri0r3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
